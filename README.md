@@ -1,6 +1,6 @@
 # 💕 Welcome To AliyahX 
 [![](https://telegra.ph/file/07e17d28a12c6fca627c4.png)](https://telegra.ph/file/07e17d28a12c6fca627c4.png)
-###### :tw-1f6a6:AliyahX Owned By Anoj Yasarathne. He Is Trying To Make Creative Coding Projects.
+###### 🌹AliyahX Owned By Anoj Yasarathne. He Is Trying To Make Creative Coding Projects.
 
 
 
